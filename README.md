@@ -1,1 +1,0 @@
-# Mide-silver-spa-price
